@@ -5,6 +5,6 @@ Please view the pdf Z.pdf for a look at me in a written description.
 
 View Z montage.png to look at my and mine visually.
 
-Looking is welcomed, other wize what you see is Copyright Zahirudeen Premji, all rights reserved.
+Looking is welcomed, otherwise what you see is Copyright Zahirudeen Premji, all rights reserved.
 
 😎 emoji credited to Apple, MacOS
