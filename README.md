@@ -1,7 +1,7 @@
 # Z
 About me.
 
-Please view the pdf Z.pdt for a look at me in a written description.
+Please view the pdf Z.pdf for a look at me in a written description.
 
 View Z montage.png to look at my and mine visually.
 
