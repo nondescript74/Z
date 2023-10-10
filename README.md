@@ -1,9 +1,9 @@
 # Z
 About me.
 
-Please view the pdf Z.pdf for a look at me in a written description.
+Please view Z.pdf - me in a written description.
 
-View Z montage.png to look at my and mine visually.
+Z montage.png me my and mine visually.
 
 Looking is welcomed, otherwise what you see is Copyright Zahirudeen Premji, all rights reserved.
 
