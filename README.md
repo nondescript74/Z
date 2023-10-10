@@ -1,7 +1,7 @@
 # Z
 About me.
 
-View Z.pdf - me in a written description.
+View Z2.pdf - me in a written description.
 
 Z montage.png me my and mine visually.
 
