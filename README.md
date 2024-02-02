@@ -1,7 +1,7 @@
 # Z
 About me.
 
-[Z2.pdf](https://github.com/nondescript74/Z/blob/main/Z2.pdf) - me in a written description.
+[Z.pdf](https://github.com/nondescript74/Z/blob/main/Z.pdf) - me in a written description.
 
 
 [Z_montage_oct_8_2023.png](https://github.com/nondescript74/Z/blob/main/Z_montage_oct_8_2023.png) me and mine,  visually.
